@@ -1,1 +1,0 @@
-# foolcold.github.io
